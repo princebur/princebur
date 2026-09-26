@@ -1,4 +1,4 @@
-eryne & oris <img width="1871" height="3471" alt="Image" src="https://github.com/user-attachments/assets/eaf6a923-5680-423c-89fe-99fead49d66f" />
+rex & eryne & oris <img width="2747" height="3471" alt="Image" src="https://github.com/user-attachments/assets/7e2dd2f0-95fe-4111-b0ac-44b0e7e09906" />
 maryam <img width="2053" height="3768" alt="Image" src="https://github.com/user-attachments/assets/8e836e8c-5618-4bc6-a69f-012a98eb2979" />
 <img width="2500" height="4365" alt="Image" src="https://github.com/user-attachments/assets/006f1564-72e1-4900-a40f-2ea0b4f9f233" />
 <img width="2495" height="4798" alt="Image" src="https://github.com/user-attachments/assets/609cd5d7-f959-4d81-89b6-c507413cbd0d" />
