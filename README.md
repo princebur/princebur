@@ -1,8 +1,8 @@
 rex & eryne & oris <img width="2721" height="3471" alt="Image" src="https://github.com/user-attachments/assets/65bdd069-4bed-4031-86d3-b801de36b963" />
-miblu <img width="4627" height="4095" alt="Untitled4159_20261117081414" src="https://github.com/user-attachments/assets/1b3a9246-a19d-4265-99bb-edb4268b1b16" />
 <img width="2271" height="4825" alt="Untitled4169_20261117182608" src="https://github.com/user-attachments/assets/d23f63d2-7949-4f78-9d11-bc06c1ad2037" />
 <img width="3292" height="3498" alt="Untitled4165_20261111035300" src="https://github.com/user-attachments/assets/f47c1f40-0feb-42ae-baf1-746dc68e9da1" />
-delta preview <img width="4054" height="3310" alt="Image" src="https://github.com/user-attachments/assets/e936cfe4-9f2b-4fe5-a8da-8fc40c261f8e" />
+delta preview <img width="4523" height="3768" alt="Untitled4176_20261120021815" src="https://github.com/user-attachments/assets/be676d4d-fa3a-47df-add3-2ad6207f7844" />
+<img width="4054" height="3310" alt="Image" src="https://github.com/user-attachments/assets/e936cfe4-9f2b-4fe5-a8da-8fc40c261f8e" />
 <img width="3095" height="3010" alt="Image" src="https://github.com/user-attachments/assets/52869ab7-a353-4490-a049-ac5c3c4c0e81" />
 <img width="5266" height="3010" alt="Image" src="https://github.com/user-attachments/assets/d519fa2f-b8fa-48d8-bb1e-e1e90271e934" />
 <img width="3045" height="2793" alt="Image" src="https://github.com/user-attachments/assets/84130d50-c5e1-435f-9bf2-e75f4b8d4f9c" />
