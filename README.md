@@ -1,6 +1,6 @@
 rex & eryne & oris <img width="2721" height="3471" alt="Image" src="https://github.com/user-attachments/assets/65bdd069-4bed-4031-86d3-b801de36b963" />
-<img width="3736" height="5789" alt="Untitled4177" src="https://github.com/user-attachments/assets/eb3ee761-9518-41d5-b389-127cd3d6f24a" />
-<img width="4087" height="3768" alt="Untitled4180" src="https://github.com/user-attachments/assets/99bf87b1-cd3f-4da9-81fa-0c0d84b44988" />
+celyth <img width="3736" height="5789" alt="Untitled4177" src="https://github.com/user-attachments/assets/eb3ee761-9518-41d5-b389-127cd3d6f24a" />
+oryth <img width="4087" height="3768" alt="Untitled4180" src="https://github.com/user-attachments/assets/99bf87b1-cd3f-4da9-81fa-0c0d84b44988" />
 <img width="1759" height="2121" alt="Untitled4181" src="https://github.com/user-attachments/assets/b623d301-a002-448c-80fd-0716fa68dec0" />
 <img width="2271" height="4825" alt="Untitled4169_20261117182608" src="https://github.com/user-attachments/assets/d23f63d2-7949-4f78-9d11-bc06c1ad2037" />
 <img width="3292" height="3498" alt="Untitled4165_20261111035300" src="https://github.com/user-attachments/assets/f47c1f40-0feb-42ae-baf1-746dc68e9da1" />
