@@ -2,7 +2,7 @@ rex & eryne & oris <img width="2721" height="3471" alt="Image" src="https://gith
 celyth <img width="3736" height="5789" alt="Untitled4177_20261125052651" src="https://github.com/user-attachments/assets/58924055-e653-491f-be49-56b146a46459" />
 <img width="4087" height="3768" alt="Untitled4180_20261125052932" src="https://github.com/user-attachments/assets/c0d7a732-47ed-4fa1-ac31-45dfa9c3f92e" />
 <img width="1759" height="2121" alt="Untitled4181_20261125054424" src="https://github.com/user-attachments/assets/e059c148-f9f6-47f3-ab59-a1110af7cff4" />
-<img width="6776" height="3768" alt="Untitled4184" src="https://github.com/user-attachments/assets/5fd36b77-a69d-4ad3-a3c2-b8bcca1f6e56" />
+<img width="6776" height="3768" alt="Untitled4184_0002-29-00_20261128115805" src="https://github.com/user-attachments/assets/9e2ad4cf-2af5-41c1-9f53-5ded0e98761c" />
 <img width="2271" height="4825" alt="Untitled4169_20261117182608" src="https://github.com/user-attachments/assets/d23f63d2-7949-4f78-9d11-bc06c1ad2037" />
 <img width="3292" height="3498" alt="Untitled4165_20261111035300" src="https://github.com/user-attachments/assets/f47c1f40-0feb-42ae-baf1-746dc68e9da1" />
 delta preview <img width="4523" height="3768" alt="Untitled4176_20261120021815" src="https://github.com/user-attachments/assets/be676d4d-fa3a-47df-add3-2ad6207f7844" />
